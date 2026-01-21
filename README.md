@@ -1,3 +1,6 @@
+<img width="735" height="245" alt="image" src="https://github.com/user-attachments/assets/0ce11e68-f13f-401e-9bbb-d5fe2426d0e9" />
+
+
 # 💫 About Me:
 🔭 I’m currently working on myself<br>👯 I’m looking for harry styles<br>🤝 I’m looking for help to find harry styles<br>🌱 I’m currently learning idk<br>💬 Ask me about anything but myself<br>⚡ Fun fact, i love potato corner
 
