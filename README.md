@@ -1,4 +1,5 @@
-<img width="735" height="245" alt="image" src="https://github.com/user-attachments/assets/0ce11e68-f13f-401e-9bbb-d5fe2426d0e9" />
+<img width="1584" height="396" alt="Architect Linkedin Background (1)" src="https://github.com/user-attachments/assets/a2ac6521-6c30-4952-a546-ab49fbf99392" />
+
 
 
 # 💫 About Me:
