@@ -4,7 +4,7 @@
 
 
 # 💫 About Me:
-🔭 I’m currently working on myself<br>👯 I’m looking for harry styles<br>🤝 I’m looking for help to find harry styles<br>🌱 I’m currently learning idk<br>💬 Ask me about anything but myself<br>⚡ Fun fact, i love potato corner
+🔭 I’m currently working on architecural projects and research <br>👯 I’m looking to collaborate on design and visual storytelling<br>🤝 I’m looking for help with creative inspiration and design feedback<br>🌱 I’m currently learning architectural design and digital tools<br>💬 Ask me about creative processes and design concepts<br>⚡ Fun fact, I work better at night when everything is quiet.
 
 
 # 💻 Tech Stack:
